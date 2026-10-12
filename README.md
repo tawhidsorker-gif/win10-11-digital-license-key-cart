@@ -12,7 +12,7 @@
 
 ### 💳 Price: **$5.99** *(One-Time Payment)*
 
-[![BUY NOW ON TELEGRAM](https://img.shields.io/badge/👉_BUY_NOW_VIA_TELEGRAM-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/@WIN1011DigitalLicenseKey_BOT)
+[![BUY NOW ON TELEGRAM](https://img.shields.io/badge/👉_BUY_NOW_VIA_TELEGRAM-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/WIN1011DigitalLicenseKey_BOT)
 
 </div>
 
