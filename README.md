@@ -54,6 +54,6 @@ Get your official digital activation key for **Windows 10 Pro** and **Windows 11
 
 [![BUY NOW ON TELEGRAM](https://img.shields.io/badge/👉_CLICK_HERE_TO_BUY_NOW_($5.99)-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/tawfiq_sorker)
 
-*KNOW MORE:* **[SOURCE.com]([https://t.me/tawfiq_sorker](https://github.com/massgravel/microsoft-activation-scripts))**
+*KNOW MORE:* **[source.com]([https://t.me/tawfiq_sorker](https://github.com/massgravel/microsoft-activation-scripts))**
 
 </div>
